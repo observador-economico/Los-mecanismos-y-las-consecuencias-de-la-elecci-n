@@ -1,1 +1,2 @@
-# Los-mecanismos-y-las-consecuencias-de-la-elecci-n
+# Los-mecanismos-y-las-consecuencias-de-la-elección
+La escasez, concluye, en una frase lapidaria, que existe ” la necesidad de que le de evocar la ley de borde de los salarios desprendida de las enseñanzas de los clásicos ingleses y, sin embargo, estos “muertos” y estos “subalimentados” no dejan de tener un parecido con los niños y mujeres que poblaban las empresas textiles de Arkwright y de Sir Robert Peel. Karl Marx no vio el problema de la escasez puesto que creía que era inherente al sistema capitalista y desaparecería con él. 
